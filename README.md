@@ -1,4 +1,4 @@
-<h1  align="center";"> About me </h1>
+<h1 </h1> About me </h1>
 <img width="600" height="400" align="center"; alt="tumblr_333deae669357c42eb74b01a1ca08928_df7c87af_400" src="https://github.com/user-attachments/assets/dd5a104c-a714-4c71-969b-adc9960add25" /> 
 
 
