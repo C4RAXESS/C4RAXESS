@@ -7,7 +7,7 @@ I go by sage, other nicknames are fine
 im shy around new people and most likely will not approach you first and will struggle to keep convos going
 
 
-im fine with c+h unless stated
+im fine with c+h unless stated otherwise
 
 
 iwc unless you're my friend im not always in the best state of mind i apologize
