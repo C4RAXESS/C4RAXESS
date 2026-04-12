@@ -1,23 +1,21 @@
-<h1 </h1> About me </h1>
-<img width="600" height="400" align="center"; alt="tumblr_333deae669357c42eb74b01a1ca08928_df7c87af_400" src="https://github.com/user-attachments/assets/dd5a104c-a714-4c71-969b-adc9960add25" /> 
+<p align="center">
+  <img width="400" height="400" alt="tumblr_f241712b1d6870cdb70260f75e8e97e3_34bd93bd_250" src="https://github.com/user-attachments/assets/4501ed70-e789-4b54-8e4a-2b664ee58774" />
+</p>
+<h1 align="center">𝔹𝕖𝕗𝕠𝕣𝕖 𝕪𝕠𝕦 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥</h1>
 
-I go by sage, other nicknames are fine
+• Minor
 
+• Im not mentally well so please do iwec unless we are really close
 
-im shy around new people and most likely will not approach you first and will struggle to keep convos going
+• not one to really interact first besides crowns. forgive me if i dont continue convo's.
 
+• If you see my grace (roblox) cosplays, do know i dont support anything that the owner did i simply enjoy the characters.
 
-im fine with c+h unless stated otherwise
+• I really like mahito as a character throw tamatoes at me thats fine
 
+<p align="center"> <img width="250" height="210" alt="tumblr_42f1c130d0f36ecb444f137fb5114fa3_26db8904_250" src="https://github.com/user-attachments/assets/9d0d472e-8072-4b8e-a96d-0856d3ec2742" />   <h1 align="center">𝔻ℕ𝕀 / 𝕀ℕ𝕋</h1>
 
-iwc unless you're my friend im not always in the best state of mind i apologize
+• DNI : -15. overall gross people basic dni criteria. dont be TO weird i dont like it. Proshippers, dark shippers all of the above
 
+• INT: Ppl with my interests, jjk , args , murder drones, uuh theres a lot. 
 
-**Dni : basic criteria. dont be overly weird i get uncomfy easily . under 15, older than 18.**
-
-i am a huge fan of args at the moment.
-will make a atabook or strawpage soon when i have motivation
-
-hi hypo luv you /silly
-
-<img width="600" height="400" align="center" alt="tumblr_95fefbce3869290898d93e59217626a2_2d5d5b2b_400" src="https://github.com/user-attachments/assets/1cbf4524-8795-401e-8df4-4bd0365fe994" />
