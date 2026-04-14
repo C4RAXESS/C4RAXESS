@@ -11,7 +11,7 @@
 
 • I DO NOT SUPPORT THE GRACE DRAMA. i just like the characters.
 
-• I really like mahito as a character throw tamatoes at me thats fine
+• I really like mahito as a character throw tamatoes at me thats fine (not a yume or kin)
 
 • YUMESHIPPER. Yume with bone marrow from ihasafacelulz block me if that bothers you. 
 
